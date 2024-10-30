@@ -6,6 +6,8 @@ Vou falar um pouco sobre mim meu jovem🤙
 - 15 anos de cadeia😝
 - Especialista em dormir
 
+- [alura](https://cursos.alura.com.br/dashboard)
+
 ![](https://media1.tenor.com/m/dVUu7T6EuAcAAAAC/o-bagulho-e-doido-mesmo-everson-zoio.gif)
 
 
