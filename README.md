@@ -2,9 +2,12 @@
 
 Vou falar um pouco sobre mim meu jovem🤙
 
-Meu nome é Daiany 
-15 anos 
-Empinadora profissional🤟
+- Meu nome é Daiany 
+- 15 anos de cadeia😝
+- Especialista em dormir
+
+![](https://media1.tenor.com/m/dVUu7T6EuAcAAAAC/o-bagulho-e-doido-mesmo-everson-zoio.gif)
+
 
 
 
